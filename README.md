@@ -1,2 +1,2 @@
 # meus_jogos
-Aqui ficam guardados alguns do meus jogos favoritos
+Aqui ficam guardados alguns dos meus jogos favoritos
